@@ -14,7 +14,7 @@
 ## 📻📺  ˒﹚)
 
 
-| $${\color{#565656}Dsc: tiresiastesseract}$$ 
+| $${\color{#565656}Dsc: tiresiastesseract\space | DMs\space open!}$$ 
 
 | $${\color{#878787}Ask\space me\space for\space my\space Roblox\space user\space or\space HSR\space uid\space [NA\space server].}$$ 
 
