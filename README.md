@@ -5,7 +5,7 @@
 
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/98fcbbb9-650e-4ecd-9c2f-88d4450de5e3" />   I'm Dieter 🦌 
 
-- I speak: eng/pol/rus/ger
+- I speak: eng/pol/ger/rus
 - I like Hazbin Hotel and HSR 
 - Feel free to interact! ~
 ## 📻📺 
