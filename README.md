@@ -8,8 +8,8 @@
 
 - $${\color{#D6BCB0} I\space speak: eng/pol/ger/rus}$$
 - $${\color{#CF8880} Mainly\space into\space Hazbin\space Hotel\space and\space Hsr.}$$ 
-- $${\color{#913931}Feel\space free\space to\space interact!\space ~}$$
-## 📻📺 
+- $${\color{#913931}18+\space .☘︎ ݁˖ Feel\space free\space to\space interact!\space ~}$$
+## 📻📺  ˒﹚)
 
 
 | $${\color{#565656}Dsc: tiresiastesseract}$$ 
