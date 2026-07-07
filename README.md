@@ -1,7 +1,9 @@
-## Hello!
+## Hello! ^_^ 
 
-## I speak: eng/pol/rus/ger
-Feel free to interact! 
+I'm Dieter 🦌
+- I speak: eng/pol/rus/ger
+- Feel free to interact! 
+## 📻📺 
 <!--
 
 -->
