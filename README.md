@@ -6,7 +6,7 @@
 
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/98fcbbb9-650e-4ecd-9c2f-88d4450de5e3" align="left" hspace="15"/>  I'm Dieter [Dirk] 🦌 
 
-- $${\color{#D6BCB0} I\space speak: eng/pol/ger/rus}$$
+- $${\color{#D6BCB0} I\space speak: eng/pol/ger}$$
 - $${\color{#CF8880} Mainly\space into\space Hazbin\space Hotel\space rn.}$$ 
 - $${\color{#913931}18+\space .☘︎ ݁˖ Feel\space free\space to\space interact!\space ~}$$
 
